@@ -1,1 +1,1 @@
-https://heroic-bublanina-78de7f.netlify.app/
+https://google-projects.netlify.app/
